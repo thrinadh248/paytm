@@ -1,0 +1,16 @@
+77s7s8sss4s4s5s4s4s5s5
+s5ss8ss4s4s4d4f4ff4ff
+f8f8fff
+ff4145ss4s4s4
+5s8s8ss44sd44f4f4ff
+f8f8dd44d4dd1f44f4g4g4g
+58f88ff4f444r4r4rr1r1
+d55d4dd4d4f4ff4f44gg4ghhhg
+ff8ff8f5f4ff4444ee4e5r5r4tt1g21gg5g5
+d55d5d5d5s5s5ssee552f3ff6
+6dd555s5s5s5ss55ee5eee1d1d2
+d6ds5s5s5s5s4w55w5eer44rr
+s5s5s5s5s4df11f4f4ggg14g5g2g
+d5d5d5d5dd2d22dd2
+55d5d5d44f44fg4g4ggg1
+5s5s5s5s4dff4g4gh5h5hh2
